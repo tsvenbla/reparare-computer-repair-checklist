@@ -1,0 +1,1 @@
+# reparare-computer-repair-checklist
