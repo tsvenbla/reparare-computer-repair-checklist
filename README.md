@@ -1,1 +1,2 @@
-# reparare-computer-repair-checklist
+# 🪛 Reparare 🩺
+## Computer Repair Checklist
